@@ -1,5 +1,9 @@
-# unity_december NOTE:
+# ERROR:
 
-Will upload over the weekend as Academy Class's internet was too slow to upload the files.
-Best
+Problems uploading files to GITHUB. Please email me on the following address:
+bairdleon@mac.com
+
+Will respond with the files zipped and sent via WE-Transfer.
+
+Best wishes
 Leon
